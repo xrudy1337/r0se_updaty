@@ -1,1 +1,1 @@
-# r0se_updaty
+# LISTA UPDATÓW R0SE
